@@ -11,3 +11,11 @@
 4.《内外科护理学》（第四版），李和惠，黄钰雯等主编，台北.华杏出版机构，2014年.
 
 下载链接：
+上册
+https://zh.sg1lib.org/book/19231720/a8a603
+
+下册
+https://zh.sg1lib.org/book/19233464/0ade9f
+
+百度网盘
+链接: https://pan.baidu.com/s/1zGOD4TUANPV670Q1OqCXDg?pwd=hm64
