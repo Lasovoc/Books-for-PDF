@@ -1,12 +1,11 @@
 # Books-for-PDF
 
-佛科招生办的网页挂了，找了个别的网页来看校考考纲。
+佛山科学技术学院2022年普通专升本专业综合课考试大纲【招生专业：护理学；专业综合课：护理学综合（校考）】
 
-2022佛山科学技术学院专升本校考专业考纲
+链接：https://zsb.fosu.edu.cn/?p=2951
 
-链接：https://www.exueshi.com/news/6-33572
+存档链接：https://web.archive.org/web/20220320083422/https://zsb.fosu.edu.cn/?p=2951
 
-存档链接：https://archive.ph/r7pjg
 
 这本书可能难买到，故这里就把它电子化好了。
 
